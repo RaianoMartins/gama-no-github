@@ -1,0 +1,1 @@
+Estou gostando muito do curso, as aulas deste módulo são interessantes e objetivas acompanhadas com exercícios o que facilita meu aprendizado.
